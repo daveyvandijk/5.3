@@ -1,2 +1,5 @@
 # 5.3
-het is niet veel maar vind het moeilijk om te schrijven 
+het is niet veel maar vind het moeilijk om te schrijven, en weet niet of het zo moet.
+
+Leven van een vluchteling 
+je bent een vluchteling en je moet uit het land vertrekken want er is oorlog en jij en je familie vinden het niet meer veilig je bedenkt denkt of je met je familie gaat of in je eentje. En hoe je naar Nederland gaat komen met de auto, boot, vliegtuig.                                                                                      Als de reis veilig is voorlopen moet je je aanmelden bij de (AC) het aanmeldcentrum want als je dat doet ga je de goeie kant op, want dan weet je of je mag blijven in Nederland en je hebt een kans om een huis te krijgen en om de week geld te krijgen. Terwijl als je dat niet doet kan je de verkeerde kant op gaan je gaat op straat leven je doet verkeerde dingen en zo gaat je toekomst de verkeerde kant op, maar het is nooit te laat om nog te veranderen . Als je je wel aanmeld krijg je een huis je gaat naar school. Je gaat een leuk baantje zoeken zodat je geld kan verdienen om weer leuke dingen mee te doen . je kan ook slagen voor je school zo kan je een grote baan zoeken om lang te doen. Misschien wil je zelf een familie beginnen.  
